@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dennisvin
-- 👀 I’m interested in thruth
+- 👀 I’m interested in truth
 - 🌱 I’m currently learning life
 - 💞️ I’m looking to collaborate on national security
 - 📫 How to reach me @ lawyergeoegebred@gmail.com
